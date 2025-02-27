@@ -36,5 +36,5 @@ Thank you for reviewing my submission!
 
 For any inquiries or feedback regarding this project, please contact:
 
-- <a>[Piyush Kumar ](https://www.linkedin.com/in/piyushkumar2300/)(LinkedIn)</a>
-- Email: piyusharya1912@gmail.com
+- <a>[LinkedIn](https://www.linkedin.com/in/harsh-sharma30/)(Harsh Sharma)</a>
+- Email: harsharma0013@gmail.com
